@@ -113,3 +113,19 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+
+### Rocky Road
+
+Ingredients:
+- 2 cups semisweet chocolate chips
+- 1 cup peanut butter
+- 4 cups miniature marshmallows
+
+Instructions:
+1. Grease a 9 x 9 inch pan.
+2. Heat chocolate chips and peanut butter over low heat in a medium saucepan until chips are completely melted. 
+3. Remove from heat. 
+4. Stir in marshmallows.
+5. Pour into prepared pan. 
+6. Cool. Can be put into refrigerator to cool.
